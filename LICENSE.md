@@ -1,4 +1,4 @@
-#  
+#  run for brainrots Script smart offers the most advanced run for brainrots Script, with no clip and auto-farm. Perfect for dominating any match.
 
 
 
